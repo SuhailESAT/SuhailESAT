@@ -1,5 +1,5 @@
 # 💫 About Me:
-A “Determined and Dynamic” professional.<br><br>Part - Qualified Accountant<br><br>Currently Studying...
+A “Determined and Dynamic” professional.<br><br>Currently Studying...
 
 
 ## 🌐 Socials:
